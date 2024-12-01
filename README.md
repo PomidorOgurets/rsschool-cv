@@ -1,1 +1,1 @@
-# rsschool-cv
+https://pomidorogurets.github.io/rsschool-cv/cv
